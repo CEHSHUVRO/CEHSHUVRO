@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CEHSHUVRO
+- 👋 Hi, I’m @SHUVRO KARMAKAR
 - 👀 I’m interested 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate
